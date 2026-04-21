@@ -1,10 +1,11 @@
 # 🏆 Hall of Fame
 
 hanyu1774
+Michael Winkels
+Nataliya Yavon
 Julia Kutschke
-mzb11
+mzb111
 Vitaliy
 JackTheGitter
 Spiderman1234
 GitWizard9 (Dennis)
-
