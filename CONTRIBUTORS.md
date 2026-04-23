@@ -1,5 +1,6 @@
 # 🏆 Hall of Fame
 
+Amaya Zorrilla
 Jenny Krause (jen260920)
 hanyu1774
 Michael Winkels
