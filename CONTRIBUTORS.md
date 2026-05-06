@@ -1,5 +1,6 @@
 # 🏆 Hall of Fame
 
+daffodil332 (Sebastian)
 Amaya Zorrilla
 Jenny Krause (jen260920)
 hanyu1774
